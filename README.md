@@ -1,2 +1,0 @@
-# pabliiito
-Página de pablito
